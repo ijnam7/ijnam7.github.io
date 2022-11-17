@@ -1,1 +1,0 @@
-# ijnam7.github.io
